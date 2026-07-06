@@ -1,4 +1,4 @@
-# 
+# Premium birdeye sniper bot workflow for Mac OS | Advanced birdeye sniper bot workflow for PC Windows. Featuring gas price optimization and rate limiting — optimized for maximum performance on every platform.
 
 
 
